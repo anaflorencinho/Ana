@@ -5,7 +5,7 @@ Meu sonho e viajar pelo mundo e conhecer culturas e culinarias novas, adoro conv
 
 Amo musicas anigas dos anos 60s 70s 80s 90s e 2000s
 
-Sou apaixonda pela psicologia meu sonho e ser psicologa e poder ajudar as outras pessoas com seus problemas em conversando
+Sou apaixonda pela psicologia meu sonho e ser psicologa e poder ajudar as outras pessoas com seus problemas em conversa
 
 Uma curiosidade e que sou obsecada pelo céu e amo ficar admirando e sempre tiro fotos
 
